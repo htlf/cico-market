@@ -7,3 +7,4 @@ Puneti va rog aiicilishea datele de contact relevante. Macar o adresa mail. Nu s
 Valentinbatrinescu@gmail.com
 mironemanueldanut@gmail.com
 gabriandanut@yahoo.com
+daniel_sudmail@yahoo.com
