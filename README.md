@@ -8,3 +8,5 @@ Valentinbatrinescu@gmail.com
 mironemanueldanut@gmail.com
 gabriandanut@yahoo.com
 daniel_sudmail@yahoo.com
+pasaran.razvan@gmail.com
+
